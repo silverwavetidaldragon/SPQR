@@ -13,3 +13,5 @@ Bird by Poly by Google [CC-BY] (https://creativecommons.org/licenses/by/3.0/) vi
 <a href="https://www.vecteezy.com/free-vector/eagle">Eagle Vectors by Vecteezy</a>
 <a href="https://www.vecteezy.com/free-vector/eagle">Eagle Vectors by Vecteezy</a>
 <a href="https://www.vecteezy.com/free-png/gold-plate">Gold Plate PNGs by Vecteezy</a>
+https://opengameart.org/content/low-poly-3d-dice CC0
+https://opengameart.org/content/cc0-document-icons
