@@ -11,7 +11,7 @@ EJ hittat
 roman eagle, närmaste om sätter på diagonalen:
 Bird by Poly by Google [CC-BY] (https://creativecommons.org/licenses/by/3.0/) via Poly Pizza (https://poly.pizza/m/8Ph79kHbt9s)
 <a href="https://www.vecteezy.com/free-vector/eagle">Eagle Vectors by Vecteezy</a>
-<a href="https://www.vecteezy.com/free-vector/eagle">Eagle Vectors by Vecteezy</a>
+<a href="https://www.vecteezy.com/free-vector/eagle">Eagle Vectors by Vecteezy</a> black eagl on paper, recolored and resized
 <a href="https://www.vecteezy.com/free-png/gold-plate">Gold Plate PNGs by Vecteezy</a>
 https://opengameart.org/content/low-poly-3d-dice CC0
 https://opengameart.org/content/cc0-document-icons
